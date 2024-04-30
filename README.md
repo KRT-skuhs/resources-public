@@ -6,4 +6,6 @@
 
 - https://www.youtube.com/playlist?list=PLnMKNibPkDnF0wt-ZI74SflnsBV4yKzkO
 
+- https://www.youtube.com/playlist?list=PLnMKNibPkDnGd7J7fV7tr-4xIBwkNfD--
+
 ## Reddit
